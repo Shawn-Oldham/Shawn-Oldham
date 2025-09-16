@@ -8,6 +8,6 @@
 ###
 ### I have a passion for reading fantasy and science fiction. Recently, I have delved into several series that explore the intriguing and thought-provoking theme of societal collapse in the United States, particularly focusing on scenarios where the power grid goes down for an extended period of at least a year.
 ###
-### I also enjoy playing the online strategy game Star Trek Fleet Command, where I find excitement and challenge in strategizing and exploring the vast universe of Star Trek.
+### I also enjoy playing the online strategy game Star Trek Fleet Command.  I enjoy the friendships I have made with my new online friends.  
 ###
-### My personal life is enriched by my family, including my wife, mother-in-law, and our beloved dog, Olee. I am an avid sports fan, particularly enjoying college basketball and college football. My favorite team is the University of Kentucky Wildcats, and I never miss an opportunity to cheer them on.
+### My personal life is enriched by my family, including my wife, mother-in-law, and our beloved dog, Olee. I am an avid sports fan, particularly enjoying college basketball and college football. My favorite team is the University of Kentucky Wildcats.  I am happy to see the new football season start.  Although, I really can't wait for the 2025-26 college basketball season to start if truth be known.  
